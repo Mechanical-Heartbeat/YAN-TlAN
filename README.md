@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-✦ ! Please C+H ! i don't mind! oftb / busy / gaming most of the time!
+✦ ! Offtab / busy most of the time! Please be patient with me!
 </p>
 
 <p align="center">
@@ -16,7 +16,7 @@
 Links!
 </p>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎‎‎  ‎ ‎ ‎ ‎‎‎[Rentry!](https://rentry.co/dance-of-abzendegi)  ✩  ‎‎[Carrd!](https://lotus-eat3r.carrd.co/#) 𓇼 [Pronouns!!!](https://en.pronouns.page/@N1L0U)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎‎‎  ‎ ‎ ‎ ‎‎‎[Rentry!](https://rentry.co/dance-of-abzendegi)  ✩  ‎‎[Carrd!](https://dance-of-fools.carrd.co/) 𓇼 [Pronouns!!!](https://en.pronouns.page/@N1L0U)
 <p align="center">
 ──── ✦ ────
 </p>
